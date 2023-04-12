@@ -49,4 +49,4 @@
 
 - <img width="1552" alt="5" src="https://user-images.githubusercontent.com/83962223/205579000-77ee3e6f-b8f6-47e0-bf97-711e8cd911ad.png">
 
-- 2022년 한국정보기술학회 추계 종합학술대회 참가
+- 2022년 한국정보기술학회 추계 종합학술대회 동상 
